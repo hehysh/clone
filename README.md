@@ -4,8 +4,10 @@
 >>1+1=2
 >2+2=4
 >>>3+3=6
+>>>dick
 ***
-#启事
-寻找朱yk丢失的dick
-这个dick对他非常重要
-没有了dick他就完蛋了
+#dick已经找到了
+***
+#2022@CopyRight
+《www.baidu.com>
+
