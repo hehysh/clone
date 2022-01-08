@@ -1,13 +1,6 @@
 # hehysh.github.io
-以下，本网站未完成
-## 测试
->>1+1=2
->2+2=4
->>>3+3=6
->>>dick
+Hehysh's personal website
 ***
-#dick已经找到了
+I'm very glad if you visit this website
 ***
-#2022@CopyRight
-<www.baidu.com>
-
+Please DO NOT fork this,thank you!
